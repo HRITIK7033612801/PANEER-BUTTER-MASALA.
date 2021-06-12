@@ -1,0 +1,7 @@
+In a large pan or kadhai, heat a tablespoon of butter and a tablespoon of oil.
+Add red chillies, ginger, garlic paste and all the whole spices (bay leaves, cinnamon, cloves, cardamom and peppercorns). Alternatively, you can also wrap the spices in a muslin cloth and add them to the pan (take this out after the tomatoes are cooked down). Saute for a minute or two and add cashew nuts, poppy seeds (if using) and onions. Once the onions turn translucent, add the tomatoes. Mix well.
+Cover and cook till the tomatoes start breaking down and the mixture starts leaving oil at the edges. Switch off the flame and set aside to cool.
+Once cool enough to handle, fish out as many whole spices as possible, and blend the mixture to a smooth paste in a food processor or blender.
+In the same pan or kadhai, heat the remaining butter and add the blended paste prepared in step #4. Add garam masala powder, chili powder, turmeric, ketchup, salt along with 1/2 cup water. Bring this to a boil.
+Once the curry comes to a boil, simmer and cook for 30 minutes, till the oil separates slightly. Cut the paneer into bite sized pieces, add it to the gravy and mix gently.
+In another pan, dry roast the kasuri methi and grind it to a fine powder. Mix kasuri methi and fresh cream in the curry and switch off the flame. Serve hot.
